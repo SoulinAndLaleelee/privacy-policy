@@ -1,4 +1,4 @@
-#Privacy Policy for Orde food
+Privacy Policy for Orde food
 
 
 At Website Name, accessible at Website.com, one of our main priorities is the privacy of our visitors. This Privacy Policy document contains types of information that is collected and recorded by Website Name and how we use it.
